@@ -1,2 +1,0 @@
-Tarkoituksena on luoda
-
